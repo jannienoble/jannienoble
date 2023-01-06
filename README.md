@@ -13,3 +13,6 @@
 - 📫 **Published some academic journals
 - ⚡ **Fun fact:The best way to predict the future is to create it
 
+
+Reach me 📫
+https://www.linkedin.com/in/jane-frank-aciml-392ab2152
