@@ -1,4 +1,4 @@
- **Hi everyone, I'm Jane Noble!👋
+ **Hi everyone, I'm Jane Frank!👋
 
 **Welcome to my ✨repository ✨ 
 
