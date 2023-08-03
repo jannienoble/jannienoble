@@ -6,7 +6,7 @@
 
 
 - 🔭 **I like data insights am currently exploring machine learning
-- 🌱 **I’m most active with techchak community
+- 🌱 **I’m most active with One Campus Academy
 - 👯 **I’m looking to collaborate on data analytic and visualization project
 - 🤔 **I’m looking for help with AWS Solutions.
 - 💬 **I believe in problem solving
